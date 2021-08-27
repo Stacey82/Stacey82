@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Stacey82
 - 👀 I’m interested in People`s love
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning wie Menschen über Beziehungendenken
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
